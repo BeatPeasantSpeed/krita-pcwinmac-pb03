@@ -1,4 +1,4 @@
-# 
+# Exclusive Krita presets for Mac OS | Top Krita presets for PC Windows. Featuring artboards and motion-paths — optimized for maximum performance on every platform.
 
 
 
